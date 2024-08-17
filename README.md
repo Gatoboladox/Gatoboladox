@@ -8,7 +8,7 @@
 
 -Toco alguns **instrumentos** 🎸
 
--Eu escuto música com uma certa **frequência**
+-Eu ouço música com uma certa **frequência**
 
 [Clica aqui]😁👇
 
