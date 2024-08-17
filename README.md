@@ -2,13 +2,13 @@
 
 ### Meu nome é David
 
--Gosto de ler 📖
+-Gosto de **ler** 📖
 
--Sou fotógrafo 📷
+-Sou **fotógrafo** 📷
 
--Toco alguns instrumentos 🎸
+-Toco alguns **instrumentos** 🎸
 
--Eu escuto música com uma certa frequência
+-Eu escuto música com uma certa **frequência**
 
 [Clica aqui]😁👇
 
